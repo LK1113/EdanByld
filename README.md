@@ -1,1 +1,3 @@
 # EdanByld
+GOGOGOGO ORLEN
+WCIĘCIE
